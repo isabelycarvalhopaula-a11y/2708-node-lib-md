@@ -1,0 +1,12 @@
+* [M·A·C](https://maccosmetics.com.br)
+* [Too Faced](https://toofaced.com.br)
+* [Chanel](https://chanel.com)
+* [Beleza na Web](https://belezanaweb.com.br)
+* [Love Store](https://lovestoremakeup.com.br)
+* [Tudo de Maquiagem](https://tudodemaquiagem.com.br)
+
+* [Mahav](https://mahav.com.br)
+* [Beauty Bay](https://beautybay.com)
+* [Pandora](https://pandorajoias.com.br)
+* [Prata e Arte](https://prataearte.com.br)
+* [YouTube](https://youtube.com)
